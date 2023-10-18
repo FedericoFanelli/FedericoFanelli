@@ -1,5 +1,4 @@
 ### Hi there 👋
-
 - 🔭 I’m currently studing on Physics.
 - 🌱 I’m currently learning Statistical Mechanics.
 - 👯 I’m looking to collaborate on all you want.
